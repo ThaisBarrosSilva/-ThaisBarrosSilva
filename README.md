@@ -1,3 +1,6 @@
+![1606880925135](https://user-images.githubusercontent.com/123126649/214394455-54126aea-ada4-41b5-aba7-b48ce3742e08.jpeg)
+
+
 # **_ThaisBarrosSilva_**
 
 ## Hi there, welcome to my page :point_up_2:
